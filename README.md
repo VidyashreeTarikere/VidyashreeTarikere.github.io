@@ -1,1 +1,0 @@
-# VidyashreeTarikere.github.io
